@@ -1,3 +1,3 @@
 ## Hey there i am Caz ...
 
-# **But this account has now moved to (@bhalalansh)[https://github.com/bhalalansh].**
+# **But this account has now moved to [@bhalalansh](https://github.com/bhalalansh).**
